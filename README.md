@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RenV564
 - 👀 I’m interested in Drawing
 - 🌱 I’m currently learning Industry Manajement
-- 💞️ I’m looking to collaborate on Drawaing or animation program
+- 💞️ I’m looking to collaborate on Drawing or animation program
 - 📫 How to reach me renatavero564@gmail.com
 
 <!---
